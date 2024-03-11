@@ -4,5 +4,5 @@
 We usually sit around the ryhtem game corner and pjsekai corner! dont be afriad to say hello! :3  
 ## to anyone who came here from ponytown, hello! you can read our patreon for more info! :)
 boundries: don't be afraid to ask question about did!, cuddles + boops + interaction are welcome!!, we are semi-busy so whisper to interact we aren't responding if needed!! 
-
+for people who want our discord our discord is _furinamarionette
 
